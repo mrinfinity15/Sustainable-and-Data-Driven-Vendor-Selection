@@ -1,1 +1,1 @@
-# Research-Papers-by-Tushar-Nayak
+# Research-Paper-by-Tushar-Nayak
